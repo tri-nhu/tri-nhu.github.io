@@ -16,7 +16,7 @@ hay mùa xuân thật sự tại lòng ta
 
 ôi chiều nay gió lạnh về qua ngõ  
 báo xuân sang cho khách lữ chạnh lòng  
-ta lang thang tìm ai trên lối nhỏ  
+ai lang thang tìm ai trên lối nhỏ  
 nghe gió lùa bỗng nhớ những ngày xa  
 
 chợt ngoảnh mặt bâng khuâng tìm chiếc lá  
